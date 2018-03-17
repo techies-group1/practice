@@ -1,2 +1,3 @@
 this class is so.....
-this is a line or whatever
+Adaku is having headache 
+Adaku wants to go home
